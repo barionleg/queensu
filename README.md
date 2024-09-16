@@ -1,9 +1,11 @@
 ## ci_temp A₽p html [hимик тАбЛи©А℞ мен'Де Лёв]
 # ©т db ÅPp
-# 🌯 
+# 🌯 Q = бочкА ueen $µ 
+
+p.s. კომკრეტულ შემთხვევაში ბოციაჼი ²нეიტრიჼ° ტიელესქორი
 
 
-
+----------------------
 Temperature Simulation TEMPLA⛩E [TEMPLATTE₾] 🏛 
 ----------------------
 [inde_ხ](https://barionleg.github.io/queensu/ctappindex.html) by [©urva$TEC](https://github.com/barionleg/CurvasTES/blob/master/index.html)
