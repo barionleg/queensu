@@ -16,4 +16,6 @@ A [Pen](https://codepen.io/barionleg/pen/ExrBmBg) by [Bankn8II©$A](https://code
 
 [License](https://codepen.io/license/pen/ExrBmBg).
 
-[d3Э€ hub d'bARd BUNDESREPUBLIC 🔥TSLANd ](https://aibolem.github.io/periodic-table-1/)
+[d3Э€ hub d'bARd](https://aibolem.github.io/periodic-table-1/)
+
+BUNDESREPUBLIC 🔥TSLANd RFFR
